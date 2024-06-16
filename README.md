@@ -3,8 +3,9 @@
 - my mbti is INFJ - T !, im kinda shy too so i dont interact first!
 - im into Danganronpa, southpark and Blue lock! etc.
 - i play ponytown mostly, sometimes roblox or cookie run
-
-- > .. PONY TOWN THINGS . []
+- you can ship our ocs together..but with permission!
+ > > > > > > > > > > > > > > > > > > > > > > > > > > > > > ..
+ - > .. PONY TOWN THINGS . []
 - > whisper 2 interact!, free 2 cuddle me ^^
 - > feel free to take inspo from my ponies, but please ask! and do not make it very similar.
 - > Im mostly found in Killing game rps or mafias!
