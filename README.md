@@ -1,3 +1,4 @@
+>  / INF0 ABOUT ME . \
 -  hi im kylixer!, you can call me by my oc names. [ novilia, izoruko.]
 -   ^_^ my pronouns are she / her !, im straight + a female.
 - my mbti is INFJ - T !, im kinda shy too so i dont interact first!
