@@ -4,7 +4,7 @@
 - my mbti is INFJ - T !, im kinda shy too so i dont interact first!
 - im into Danganronpa, southpark and Blue lock! etc.
 - i play ponytown mostly, sometimes roblox or cookie run
-- you can ship our ocs together..but with permission!
+- you can ship my ocs with your ocs. with permissions!
  > > > > > > > > > > > > > > > > > > > > > > > > > > > > > ..
  - > .. PONY TOWN THINGS . []
 - > whisper 2 interact!, free 2 cuddle me ^^
