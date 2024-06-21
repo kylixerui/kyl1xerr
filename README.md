@@ -10,6 +10,7 @@
 - > whisper 2 interact!, free 2 cuddle me ^^
 - > feel free to take inspo from my ponies, but please ask! and do not make it very similar.
 - > Im mostly found in Killing game rps or mafias!
+- > i sit around the docks, sometimes at the southpark area
 - > Overstars server owner! [ Discord ] ask if you wanna join ^_^ [ we do hostings and such!. ]
 <!---
 kyl1xerr/kyl1xerr is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
