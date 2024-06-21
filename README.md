@@ -5,7 +5,7 @@
 - im into Danganronpa, southpark and Blue lock! etc.
 - i play ponytown mostly, sometimes roblox or cookie run
 - you can ship my ocs with your ocs. with permissions!
- > > > > > > > > > > > > > > > > > > > > > > > > > > > > > ..
+- ⌗ ──────────────────────────────────────────────────────────── ⌗
  - > .. PONY TOWN THINGS . []
 - > whisper 2 interact!, free 2 cuddle me ^^
 - > feel free to take inspo from my ponies, but please ask! and do not make it very similar.
