@@ -2,6 +2,7 @@
 -  hi im kylixer!, you can call me by my oc names. [ novilia, izoruko.]
 -   ^_^ my pronouns are she / her !, im straight + a female.
 - my mbti is INFJ - T !, im kinda shy too so i dont interact first!
+- I'm usually quiet, im not good at keeping up convos.
 - im into Danganronpa, southpark and Blue lock! etc.
 - i play ponytown mostly, sometimes roblox or cookie run
 - you can ship my ocs with your ocs. with permissions!
