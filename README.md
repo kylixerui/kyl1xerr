@@ -7,6 +7,7 @@
 - i play ponytown mostly, sometimes roblox or cookie run
 - you can ship my ocs with your ocs. with permissions!
 - pls dont do heavy jokes, im very sensitive. maybe use tone tags on it.
+- my mood swing may change really fast :P
 - ⌗ ────────────────────────────────────────────────── ⌗
  - > .. PONY TOWN THINGS . []
 - > whisper 2 interact!, free 2 cuddle me ^^
