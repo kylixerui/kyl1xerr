@@ -15,7 +15,5 @@
 - > Im mostly found in Killing game rps or mafias!
 - > i sit around the docks, sometimes at the southpark area
 - > Overstars server owner! [ Discord ] ask if you wanna join ^_^ [ we do hostings and such!. ]
-<!---
-kyl1xerr/kyl1xerr is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+![download (2)](https://github.com/kyl1xerr/kyl1xerr/assets/161707576/cfae7b3c-8115-4d0b-b1ae-8700a7f3484a)
+> nagito kinnie hehe : D
